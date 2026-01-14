@@ -33,5 +33,5 @@ Saya berpengalaman dalam data entry, pengolahan data, dan analisis menggunakan E
 - GitHub
 
 ## Kontak
-📧 Email: emailkamu@email.com  
-🔗 LinkedIn: https://linkedin.com/in/username
+📧 Email: andisetiae7@email.com  
+🔗 LinkedIn: https://www.linkedin.com/in/andi-setiawan-045525279?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
